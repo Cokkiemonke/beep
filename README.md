@@ -1,2 +1,3 @@
 # beep
-This is just a beta. It will get you the right answers for blooket, im not 100% sure if it will work, but if dose or dosent let me know. :)
+In my page I make blooket hacks, their all not 100% going to work but if they do or do not please let me know.
+I might make hacks for differt games in the futchur but right now I am making hacks for blooket.
